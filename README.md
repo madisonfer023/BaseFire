@@ -1,1 +1,2 @@
-<img width="1080" height="2424" alt="Screenshot_20250818_173315" src="https://github.com/user-attachments/assets/8d5435c2-e20a-42eb-9af6-5f1e6c5e3315" />
+
+![c8a141c6-1044-4df6-8d11-99830190bc90](https://github.com/user-attachments/assets/92048217-68f9-4c97-abb1-5e70934c8112)
